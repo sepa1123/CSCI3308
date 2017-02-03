@@ -2,4 +2,4 @@
 Seungjeong Park
 Joshua Green
 
-Partner: Ha Tran
+Poopy Partner: Ha Tran
