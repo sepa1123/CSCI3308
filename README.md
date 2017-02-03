@@ -2,4 +2,9 @@
 Seungjeong Park
 Joshua Green
 
-Partner: Ha Tran
+
+
+
+
+
+Awesome Partner: Ha Tran
